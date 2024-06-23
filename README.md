@@ -14,6 +14,6 @@ Description of the work done, keywords targeted, and results achieved.
 
 Contact: mohitha8412@gmail.com | Phone: 7780134362
 
-Link: My Linkedin page
+Link: My Linkedin page: www.linkedin.com/in/k-p-mohitha-76aba2296
 
 THANK YOU !
